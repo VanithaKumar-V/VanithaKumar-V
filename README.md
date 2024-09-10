@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on latest trends in GenAI
 - 📫 How to reach me LinkedIn: www.linkedin.com/in/vanithasenthilkumar
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love watching Disney Princesses movies
+- ⚡ Fun fact: I love watching Disney Princess Movies
 
 <!---
 VanithaKumar-V/VanithaKumar-V is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
