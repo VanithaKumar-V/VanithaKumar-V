@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI, ML, Cyber Security, Quantum computing
 - 🌱 I’m currently learning GenAI
 - 💞️ I’m looking to collaborate on latest trends in GenAI
-- 📫 How to reach me LinkedIn: www.linkedin.com/in/vanithasenthilkumar
+- 📫 Reach me on LinkedIn: www.linkedin.com/in/vanithasenthilkumar
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love watching Disney Princess Movies
 
